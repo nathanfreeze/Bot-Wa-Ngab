@@ -1,2 +1,0 @@
-# Bot-Wa-Ngab
-Fucek
